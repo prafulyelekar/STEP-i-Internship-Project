@@ -1,1 +1,0 @@
-# STEP-i-Internship-Project
